@@ -1,2 +1,1 @@
-# Valorant-Account-Checker
-
+https://discord.gg/fvNA9XtWzd
